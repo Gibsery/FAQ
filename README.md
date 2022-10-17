@@ -38,7 +38,7 @@ A: Unfortunately this happens a lot. Just tell the poster to give me credit poli
 
 Q: Where did your name come from?
 
-A: On a cold night in February, 2021, sanfor and I were browsing through unrestricted webcams on insecam.org. It’s not uncommon to see some funny/weird messages left by hackers on these cameras, the most common being “FUCK YOU SPIKEHUNTER”. However, one camera I clicked on had a very ominous message: “GODENTEREDMYBODY”. I thought it was perfect for a weirdcore blog and the name stuck like glue ever since.
+A: On a cold night in February, 2021, sanfor and I were browsing through unrestricted webcams on insecam.org. It’s not uncommon to see some funny/weird messages left by hackers on these cameras, the most common being “FUCK YOU SPIKEHUNTER”. However, one camera I clicked on had a very ominous message: “ENTERMBODYGOD”. I thought it was perfect for a weirdcore blog and the name stuck like glue ever since.
 
 -
 
