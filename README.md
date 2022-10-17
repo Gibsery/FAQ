@@ -61,5 +61,4 @@ A: My ex-wife. I recently escaped from it’s pocket dimension but I don’t kno
 -
 
 Q: Who is your avatar?
-A: She’s the GIRL avatar from worlds.com!
-![worldgirlspin](https://user-images.githubusercontent.com/90217469/196069531-69b76901-9de6-451a-927c-974f4bb53993.gif)
+A: She’s the GIRL avatar from worlds.com! ![worldgirlspin](https://user-images.githubusercontent.com/90217469/196069531-69b76901-9de6-451a-927c-974f4bb53993.gif)
