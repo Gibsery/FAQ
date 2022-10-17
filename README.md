@@ -14,7 +14,7 @@ A: I often get lots of asks, and I tend to go in order of earliest to most recen
 
 Q: Can you reblog this post to raise awareness/donate to this cause?
 
-A: As much as I wish it was true, long text posts on tumblr don’t tend to solve any problems. I also avoid discourse of any kind like the plague.
+A: As much as I wish it was true, long text posts on pinterest don’t tend to solve any problems. I also avoid discourse of any kind like the plague.
 
 -
 
